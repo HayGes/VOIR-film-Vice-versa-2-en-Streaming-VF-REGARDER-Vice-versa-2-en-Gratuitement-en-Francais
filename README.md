@@ -6,7 +6,7 @@ il y a 59 secondes — Voir-film! Vice-versa 2 en streaming vf 100% gratuit, voi
 
 Regarder Dub France ➥ [Vice-versa 2 (2024) Film complet en ligne gratuit](https://justflixnet.com/fr/movie/1022789/inside-out-2)
 
-Regarder Dub English ➥ [Vice-versa 2 (2024) Film complet en ligne gratuit HD](https://justflixnet.com/fr/movie/1022789/inside-out-2)
+Regarder Dub English ➥ [Vice-versa 2 (2024) Film complet en ligne gratuit HD](https://justflixnet.com/en/movie/1022789/inside-out-2)
 
 Afin de fuir la police, un père et son fils en cavale se réfugient dans une colonie de vacances pour jeunes adultes en situation de handicap. Se faisant passer pour un pensionnaire et son éducateur spécialisé, ils se retrouvent plongés dans une série de complications et découvrent une expérience humaine extraordinaire qui les transformera à jamais.
 
